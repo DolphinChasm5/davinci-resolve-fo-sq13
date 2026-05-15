@@ -1,4 +1,4 @@
-# 
+# Get the ultimate DaVinci Resolve for PC | DaVinci Resolve for Windows preset with best DaVinci Resolve for PC | DaVinci Resolve for Windows Preset | LUT-support +
 
 
 
